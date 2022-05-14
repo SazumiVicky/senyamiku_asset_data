@@ -1,0 +1,1 @@
+# senyamiku_asset_data
